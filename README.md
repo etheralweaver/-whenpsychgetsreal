@@ -1,1 +1,0 @@
-# UK Psychology Career Roadmap
